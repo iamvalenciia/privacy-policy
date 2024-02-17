@@ -1,4 +1,4 @@
-# Privacy Policy for Administrar
+# Privacy Policy for Ministrar
 
 ## Introduction
 
